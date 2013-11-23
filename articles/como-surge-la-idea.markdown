@@ -5,5 +5,3 @@ La idea del blog nace  de una conversación con mi [esposito](http://github.com/
 Yo soy estudiante de Trabajo Social y Gestión del Desarrollo  por eso cundo aparece la interrogante de qué escribir en este blog, enfocada en un sentido más humanista, decidí que esté destinado a temáticas que son abordadas día a día en la sociedad y que afectan a la sociedad pero de las que no hay tanta información.
 
 Espero que este blog sea útil y que la información publicada aquí sea provechosa para cada una de las personas que lo visiten, en cuanto a lo que escribo no es la última palabra, sino que son conocimientos adquiridos en los salones de clase, en los trabajos de campo y opiniones que surgen por los acontecimientos del día a día. No sólo espero que sirva como un espacio en el que se pueda buscar información o leer sobre algún tema en específico, sino que también sirva como un espacio para generar conciencia a través de los artículos en las personas que lo leen, para generar reflexión y cuestionamientos interiores.
-
-Test adedd
