@@ -39,7 +39,7 @@ Este tipo de maltrato es mucho más fácil de reconocer o detectar que el maltra
 
 Este tipo de violencia no sólo se desarrolla dentro del hogar y en el ámbito laboral.
 
-Dentro del hogar, en las relaciones de pareja el hombre comienza a ejercer el control y dominio absoluto o parcial (pero con las intensiones de tener control absoluto) sobre las finanzas de la mujer. Pero, ¿Cómo? Creando una total dependencia económica de la mujer hacia el hombre, no permitiéndole trabajar bajo argumentos de tipo machista, como por ejemplo que el hombre es el único encargado de trabajar, que la cabeza de la familia yr   la mujer es la encargada del hogar y todas las labores domesticas, es la encargada de educar y cuidar de los niños. 
+Dentro del hogar, en las relaciones de pareja el hombre comienza a ejercer el control y dominio absoluto o parcial (pero con las intensiones de tener control absoluto) sobre las finanzas de la mujer. Pero, ¿Cómo? Creando una total dependencia económica de la mujer hacia el hombre, no permitiéndole trabajar bajo argumentos de tipo machista, como por ejemplo que el hombre es el único encargado de trabajar, que la cabeza de la familia y la mujer es la encargada del hogar y todas las labores domesticas, es la encargada de educar y cuidar de los niños. 
 
 Para lograr esta dependencia llega a utilizar la violencia psicológica como una herramienta, haciéndola sentir culpa por el descuido de su matrimonio y hogar, acusándola de infidelidad e inclusive amenazando con abandonar  a su familia. En algunos casos recurre a violencia física para generar temor en la mujer y que la víctima abandone su trabajo.
 
