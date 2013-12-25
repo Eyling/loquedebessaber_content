@@ -31,7 +31,7 @@ Lo logra recurriendo a humillaciones, desvalorización, culpa, sufrimiento, desc
 
 Este tipo de violencia es realizada en contra de la mujer por parte del agresor con el fin de educar, aleccionar, corregir ante las acciones o comportamientos que él considere que no son adecuadas, además utiliza este tipo de violencia como una herramienta para generar sumisión por parte de la mujer agredida.
 
-En consecuencia de esta agresión pueden haber lesiones pequeñas desde moretones hasta lesiones graves que  necesiten de cuidados médicos o en algunos casos produzcan la muerta. El agresor suele golpear en lugares pocos visibles como la cabeza, piernas o estómago. Este tipo de violencia puede ser  realizada con el propio cuerpo del agresor (patadas, bofetadas, jalones de cabello, etc) o con cualquier otro objeto (armas, cuchillos, etc).
+En consecuencia de esta agresión pueden haber lesiones pequeñas desde moretones hasta lesiones graves que  necesiten de cuidados médicos o en algunos casos produzcan la muerte. El agresor suele golpear en lugares pocos visibles como la cabeza, piernas o estómago. Este tipo de violencia puede ser  realizada con el propio cuerpo del agresor (patadas, bofetadas, jalones de cabello, etc) o con cualquier otro objeto (armas, cuchillos, etc).
 
 Este tipo de maltrato es mucho más fácil de reconocer o detectar que el maltrato emocional debido a que sus lesiones no son sólo interiores, también causa un daño en el exterior.
 
