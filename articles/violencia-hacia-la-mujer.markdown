@@ -65,4 +65,5 @@ Para concluir con este artículo, solo quiero hacer hincapie en que todas estamo
 
 ##Referencias Bibliográficas.
 [Concha Muñoz- La violencia contra la mujer. Manual práctico de prevención.](http://www.amazon.com/VIOLENCIA--Manual-pr%C3%A1ctico-prevenci%C3%B3n--Spanish-ebook/dp/B00G8KPQQY/)
+
 [Miguel Lorente Acosta- Mi marido me pega lo normal.](http://www.amazon.com/marido-pega-normal-Spanish-Edition-ebook/dp/B00EJRR26U/)
