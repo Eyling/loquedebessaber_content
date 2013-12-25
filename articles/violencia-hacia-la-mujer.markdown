@@ -51,7 +51,7 @@ Dentro del ámbito laboral la mujer puede ser violentada al discriminarle para o
 
 ##Violencia Sexual.
 
-En este caso el agresor puede ser la pareja, ex-pareja, familiar, conocido o desconocido. Al hablar de violencia sexual lo primero que cruza por nuestras mentes es una mujer abusada fuera de su hogar, en un sitio desconocido y por algún desconocido. Pero no necesariamente, existe la violencia sexual dentro de matrimonios, relaciones de pareja y entra familiares o conocidos.
+En este caso el agresor puede ser la pareja, ex-pareja, familiar, conocido o desconocido. Al hablar de violencia sexual lo primero que cruza por nuestras mentes es una mujer abusada fuera de su hogar, en un sitio desconocido y por algún desconocido. Pero no necesariamente, existe la violencia sexual dentro de matrimonios, relaciones de pareja y entre familiares o conocidos.
 
 El maltrato o violencia sexual se refiere a “cualquier  forma de intimidación sexual formada por parte de la pareja, a través de la fuerza, de las amenazas o de la coacción . Abarca todo tipo de violencia donde la víctima no  dé su total consentimiento”  (CM)
 
