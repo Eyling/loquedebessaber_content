@@ -1,3 +1,3 @@
 #!/bin/bash
-cd /var/www/html/loquedebessaber.com/loquedebessaber_content/
+cd /sites/loquedebessaber.com/loquedebessaber_content/
 git pull
