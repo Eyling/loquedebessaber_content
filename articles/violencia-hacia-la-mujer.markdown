@@ -1,4 +1,4 @@
-#Violencia hacia la mujer.
+#Violencia contra la mujer.
 
 
 La Asamblea General de las Naciones Unidas en la resolución 48/104 dictada el 20 de diciembre de 1993 en el Arto.1 define la violencia en contra de la mujer como:
