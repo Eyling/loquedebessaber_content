@@ -6,18 +6,18 @@ Al rededor de esta carrera se han construido un sinnúmero de mitos que han sido
 
 Aquí algunos de los mitos más conocidos:
 
-*Esta profesión es sólo para mujeres.
+* Esta profesión es sólo para mujeres.
 
-*Para ser trabajador social no es necesario prepararse profesionalmente, solo es necesario tener ganas de ayudar a alguien más.
+* Para ser trabajador social no es necesario prepararse profesionalmente, solo es necesario tener ganas de ayudar a alguien más.
 
-*Con esta profesión es muy díficil encontrar trabajo.
-*Sólo se puede trabajar en hospitales e instituciones de seguridad social.
+* Con esta profesión es muy díficil encontrar trabajo.
+* Sólo se puede trabajar en hospitales e instituciones de seguridad social.
 
-*Es una profesión muy mal remunerada.
+* Es una profesión muy mal remunerada.
 
-*Es una carrea basada en el emperismo, no tiene ningún método en el que se basa.
+* Es una carrea basada en el emperismo, no tiene ningún método en el que se basa.
 
-*El trabajador social es sólo un asistente social que presta servicios.
+* El trabajador social es sólo un asistente social que presta servicios.
 
 Cada uno de los mitos antes mencionados son de los más famosos cuando alguien hace referencia a esta profesión. Pero como lo indica la palabra “mito” son algo  falso.
 
