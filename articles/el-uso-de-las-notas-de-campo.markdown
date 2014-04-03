@@ -1,4 +1,4 @@
-El uso de las notas de campo.
+#El uso de las notas de campo.
 
 Las notas de campo juegan una parte fundamental en las investigaciones, nos proporcionan datos que resultaran escenciales para responder nuestras interrogantes planteadas, nos permiten recordar emociones, reacciones o detalles obtenidos de las observaciones que pueden ser cruciales para nuestra investigación.
 
