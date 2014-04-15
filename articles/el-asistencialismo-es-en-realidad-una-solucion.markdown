@@ -1,5 +1,5 @@
 
-<h1>¿El asistencialismo es en realidad una solución?</h1>
+#¿El asistencialismo es en realidad una solución?
 
 En cuanto al asistencialismo siempre ha existido la polémica de sí es o no bueno para la sociead.
 
